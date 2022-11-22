@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @kxv97
+- 👀 I’m interested in coding,gaming
+- 🌱 I’m currently learning python and c 
+- 📫 How to reach me ...via discord.gg/aGqqWwT
